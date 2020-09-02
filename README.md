@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-前进在努力的道路上，开出最美的花！
+前进在努力的道路上，开出最美的花！:cherry_blossom:
